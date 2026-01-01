@@ -54,9 +54,9 @@ This project is **not licensed for reuse**. Unauthorized copying, distribution, 
 
 ## 📫 Contact
 
-📧 Email: officialadityakumarsinha@gmail.com
+📧 Email: adityakumarsinha.in@gmail.com
 🌐 Website: [Updating Soon]  
-📱 LinkedIn: https://www.linkedin.com/in/imaksofficialengineer/
+📱 LinkedIn: https://www.linkedin.com/in/adityakumarsinha-in/
 
 ---
 
